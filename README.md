@@ -1,4 +1,3 @@
 
-https://github.com/Birrhamm/UAS-PEMROGRAMAN-MOBILE/assets/115520530/c21daaba-9db2-40f6-8400-4a8c93877ffb
-Uploading lv_0_20240112235847 (1).mp4…
-
+https://github.com/Birrhamm/UAS-PEMROGRAMAN-MOBILE/assets/115520530/337e7523-9291-4d6b-922f-0d3f829076d1
+Uploading Video WhatsApp 2024-01-13 pukul 00.08.56_dd66fd89.mp4…
